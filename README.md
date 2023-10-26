@@ -30,4 +30,4 @@ Greetings! 👋 I'm Olatunde Israel Akorede, an eCommerce enthusiast with a pass
 
 I'm always excited to collaborate on eCommerce projects, share insights, and explore opportunities to boost online sales. Whether you're looking to enhance your eCommerce strategy, improve customer service, or harness data for growth, let's connect and make it happen.
 
-Feel free to reach out to me here on GitHub or connect with me on [LinkedIn](https://www.linkedin.com/in/olatunde-israel-akorede). Let's drive eCommerce success through a data-driven approach! 🛒💡
+Feel free to reach out to me here on GitHub or connect with me on [LinkedIn](https://www.linkedin.com/in/olatunde-israel-akorede) , [Instagram](https://www.instagram.com/_akore96de/). Let's drive eCommerce success through a data-driven approach! 🛒💡
